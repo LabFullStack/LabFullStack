@@ -12,6 +12,9 @@ Very experienced full stack developer, focusing both on the back-end and front e
 
 Using a broad saunter of skills, tools, and technologies to deliver your products:
 
+
+![image](https://github.com/user-attachments/assets/7f4f7b72-8bb8-4995-8a5c-655195ec5adc)
+
                 
 
 
